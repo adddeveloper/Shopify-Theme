@@ -3,7 +3,7 @@
 If this collection saved you time or inspired your next project, please consider **starring** the repo — it helps others discover it too!
 
 ---
-# 🛍️ Premium Shopify Themes Collection
+# 🛍️ [Leaked] Premium Shopify Themes Collection
 
 A curated collection of **high-end Shopify themes** inspired by or directly used by popular brand websites and top creative agencies.
 
